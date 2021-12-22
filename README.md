@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @killerlocation
+- 👀 I’m interested in Coding, Adobe Illustrator, Photoshop and After Effect.
+- 🌱 I’m currently learning Web Language.
+- 💞️ I’m looking to collaborate on maybe.
+- 📫 How to reach me iburakn@gmail.com
